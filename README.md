@@ -1,0 +1,1 @@
+# ahmo63-japanguide
